@@ -1,0 +1,1 @@
+# prectika6C
